@@ -30,5 +30,5 @@
 
 ## Author Info
 
-- Email - [kibiria.miran092.skip@gmail.com]
+- Email - [kibiria.miran092.skipq@gmail.com]
 - Name - [KIBRIA MIRAN]
